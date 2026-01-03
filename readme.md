@@ -1,1 +1,0 @@
-muito bom esse curso
